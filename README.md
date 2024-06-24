@@ -1,2 +1,2 @@
 # GastoA2
-Projeto pessoal em desenvolvimento: 
+Comming soon
